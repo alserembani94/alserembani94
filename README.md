@@ -1,6 +1,6 @@
 # Atif Aiman
 
-Hello guys, and assalamualaikum! I am Atif Aiman, also known as alserembani. Welcome to my Github, where I put all my inspiration and ideas!
+Hello guys, and assalamualaikum! I am Atif Aiman, also known as al-Serembani. Welcome to my Github, where I put all my inspiration and ideas!
 
 ## 🥼 My expertise
 
